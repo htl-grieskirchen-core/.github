@@ -1,1 +1,1 @@
-## Syp-Projekt der 5. Klassen der HTL Grieskirchen
+## Syp-Projekt der 5BHIF 2022/23 der HTL Grieskirchen
